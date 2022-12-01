@@ -4,7 +4,7 @@
 
 [`octo`](https://github.com/iothedev) professional l full-stack web-developer and programmer we are all so proud of him
 
-[`cliphd`](https://github.com/aithedevv) Rich with octo and has a crippling  gambling  addiction
+[`cliphd`](https://github.com/aithedevv) Getting rich with octo and has a crippling  gambling  addiction
 
 [`vital`](https://github.com/hhomocides) starting making money by drop shipping vapes  to children, doing good in school, plays the drums and is enjoying  life rn
 
