@@ -6,7 +6,7 @@
 
 [`cliphd`](https://github.com/aithedevv) Getting rich with octo and has a crippling  gambling  addiction
 
-[`vital`](https://github.com/hhomocides) starting making money by drop shipping vapes  to children, doing good in school, plays the drums and is enjoying  life rn
+[`vital`](https://homocides.rip) starting making money by drop shipping vapes  to children, doing good in school, plays the drums and is enjoying  life rn
 
 [`reuben/eon`](https://github.com/xorv2) nerd who made tons of servers (one with 50k  members) and is working on more servers
 
