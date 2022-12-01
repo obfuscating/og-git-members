@@ -1,8 +1,8 @@
 # og git members
 
-[`xmr`](https://github.com/arisuandlainkissingcompetition123456789) xmr he became depressed and obsessed with a online egirl
+[`lain`](https://lain.quest) made a 14 year old girl with schizoprenia his personality 
 
-[`octo`](https://github.com/iothedev) professional full-stack web-developer and programmer we are all so proud of him
+[`octo`](https://io2.cool) professional full-stack web-developer and programmer we are all so proud of him
 
 [`cliphd`](https://github.com/aithedevv) Getting rich with octo and has a crippling  gambling  addiction
 
