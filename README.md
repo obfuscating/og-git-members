@@ -12,5 +12,7 @@
 
 all of these people were og members of the discord server .gg/git there is more people to put in here i just named some of the top of my head, 
 
-homocides#0001
-xz#8989
+## Contributors
+[`vital`](https://homocides.rip)
+[`lain`](https://lain.quest)
+[`octo`](https://io2.cool)
