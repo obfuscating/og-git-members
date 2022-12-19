@@ -10,6 +10,8 @@
 
 [`reuben/eon`](https://github.com/xorv2) nerd who made tons of servers (one with 50k  members) and is working on more servers
 
+[`cia/rob`](https://discord.com/users/965958077931225090) owner of /git 
+
 all of these people were og members of the discord server .gg/git there is more people to put in here i just named some of the top of my head, 
 
 ## Contributors
